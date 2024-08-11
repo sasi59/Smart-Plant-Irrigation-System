@@ -1,0 +1,1 @@
+Intelligent irrigation technology determines the landscape's irrigation requirements based on soil moisture or weather data. These products, which preserve plant health and quality while cutting down on water waste, optimise irrigation efficiency.
